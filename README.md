@@ -2,7 +2,7 @@
 - 👀 I’m interested in Bioinformatics, Translational Medicine, AIDD, singing, sports except running, different languages with cultures and traveling, etc.
 - 🌱 I’m currently learning Japanese, better application of bioinformatics for human disease study and medicine/treatment development.
 - 💞️ I’m looking to collaborate on anything possible~
-- 📫 How to reach me ...
+- 📫 How to reach me : syf99shine@gmail.com
 - 😄 Pronouns: She
 - ⚡ Fun fact: ...
 
